@@ -1,2 +1,0 @@
-# LasPinas_ICT9Sapphire_Q1Project_Battung_Lorenzo
-student yeah boi
